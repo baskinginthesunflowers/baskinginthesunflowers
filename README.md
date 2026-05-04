@@ -1,4 +1,4 @@
-# T H E I N T R O D U C T I O N.//1. 
+# T H E I N T R O D U C T I O N.//. 
 
 
 ![72](https://github.com/user-attachments/assets/54335825-8388-4a78-afa1-3983029f4bda)
@@ -13,12 +13,7 @@ I am here to discuss the many rules and boundaries of me.
 I do wishful you to respect them too.
 
 
-# Journal /ᴇɴᴛʀʏ//2 ⚔️.
-
-
-
-
-<summary>The rules.
+# R U L E S . 
 
 please don't boop unless I happen to know or you are a close friend.
 
@@ -29,7 +24,7 @@ if I have dni on i wish for only friends to speak to me but c*h is still ok.
  I may add to this soon. 
 
 
-# ᴊᴏᴜʀɴᴀʟ ᴇɴᴛʀʏ//3 🗡.
+# S I G N I F I C A N T  B O U N D A R I E S . 🗡.
 
 boundaries.
 
