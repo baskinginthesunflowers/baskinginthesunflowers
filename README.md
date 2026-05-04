@@ -1,4 +1,4 @@
-# ᴊᴏᴜʀɴᴀʟ /ᴇɴᴛʀʏ//1. 
+# T H E I N T R O D U C T I O N.//1. 
 
 
 ![72](https://github.com/user-attachments/assets/54335825-8388-4a78-afa1-3983029f4bda)
