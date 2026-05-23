@@ -1,7 +1,4 @@
-![127](https://github.com/user-attachments/assets/e78fd3f6-5a1b-447a-9a09-f7d6c935ae61)
+<img width="736" height="624" alt="132" src="https://github.com/user-attachments/assets/c32d8b18-3610-4f30-917c-720f7cfdeea3" />
 
 
-
-
-
-hiyo, I'll start on this later because I'm lazy/hj.
+hi 
