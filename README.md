@@ -1,7 +1,5 @@
 
 
-![236](https://github.com/user-attachments/assets/fa237675-908e-4c1d-bb83-e9cfd9637a63)
-
 
 
 ![218](https://github.com/user-attachments/assets/d85cdc51-7c3d-4ed9-ad02-d35e00e9be7b)
