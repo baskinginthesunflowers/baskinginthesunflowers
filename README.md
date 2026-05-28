@@ -16,4 +16,4 @@ anyways forgot what to put here so I'm finishing it when I have the time and ene
 
 
 
-here's a art for you![257](https://github.com/user-attachments/assets/9a350a23-a0c7-4fb8-a953-884fdd3a63ab)
+
