@@ -1,9 +1,6 @@
+![269](https://github.com/user-attachments/assets/ebbab31f-7cea-4cdc-b7ed-46187619bf0c)
 
-
-
-
-![218](https://github.com/user-attachments/assets/d85cdc51-7c3d-4ed9-ad02-d35e00e9be7b)
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=FFFFFF&width=435&lines=%22I+AM+THE+DIRECTOR%2C+I+AM+UNSTABLE.%22" alt="Typing SVG" /></a>
 
 cat i used to have, miss her :<
 
