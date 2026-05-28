@@ -13,3 +13,7 @@ cat i used to have, miss her :<
   <img width="736" height="736" alt="233" src="https://github.com/user-attachments/assets/11cf09e6-de1c-4185-9e12-0a1598ceb528" />
 
 anyways forgot what to put here so I'm finishing it when I have the time and energy to do it.
+
+
+
+here's a art for you![257](https://github.com/user-attachments/assets/9a350a23-a0c7-4fb8-a953-884fdd3a63ab)
