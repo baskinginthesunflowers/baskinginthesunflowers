@@ -3,7 +3,7 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=FFFFFF&width=435&lines=%22I+AM+THE+DIRECTOR%2C+I+AM+UNSTABLE.%22" alt="Typing SVG" /></a>
 
-cat i used to have, miss her :<
+
 
  oh, hiii I'm unbrella or sebbyz either one is fine. I like to draw but I'm lazy no ye,
 
