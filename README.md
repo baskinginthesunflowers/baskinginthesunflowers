@@ -8,7 +8,8 @@
  oh, hiii I'm unbrella or sebbyz either one is fine. I like to draw but I'm lazy no ye,
 
 
-  <img width="736" height="736" alt="233" src="https://github.com/user-attachments/assets/11cf09e6-de1c-4185-9e12-0a1598ceb528" />
+  ![295](https://github.com/user-attachments/assets/571aa66f-df7d-4c2a-821d-789250d9fe7e)
+
 
 anyways forgot what to put here so I'm finishing it when I have the time and energy to do it.
 
