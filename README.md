@@ -18,6 +18,6 @@ I love to draw and animate however, I rarely draw my
 pfps due to me being more used to drawing on paper!! 
 
 
-<img width="736" height="414" alt="295" src="https://github.com/user-attachments/assets/088362bb-
- 6130-47f7-9076-98f5ca01c077" />
+<img width="736" height="414" alt="295" src="https://github.com/user-attachments/assets/aaf14cb5-2ce3-42b5-95a1-2299cf08092b" />
+
 
