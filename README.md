@@ -5,14 +5,19 @@
 
 
 
- oh, hiii I'm unbrella or sebbyz either one is fine. I like to draw but I'm lazy no ye,
 
-
-  ![295](https://github.com/user-attachments/assets/571aa66f-df7d-4c2a-821d-789250d9fe7e)
-
-
-anyways forgot what to put here so I'm finishing it when I have the time and energy to do it.
+  # Intro ok!
 
 
 
+Hiya I am sebby or unbrella if you uh actually read ;-;
+
+I love to draw and animate however, I rarely draw my 
+
+
+pfps due to me being more used to drawing on paper!! 
+
+
+<img width="736" height="414" alt="295" src="https://github.com/user-attachments/assets/088362bb-
+ 6130-47f7-9076-98f5ca01c077" />
 
