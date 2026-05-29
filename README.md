@@ -38,3 +38,9 @@ denies help but gets mad when I dont help.
 my sister did this and it pissed me off.
 treats me differently from their other friend.  
 I haven't experienced this but let's keep it that way.
+
+
+
+<img width="736" height="414" alt="297" src="https://github.com/user-attachments/assets/e92b9eb5-c171-42ce-97cb-3974318b48f7" />
+
+
