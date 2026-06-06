@@ -40,7 +40,9 @@ I haven't experienced this but let's keep it that way.
 
 # 
 
-<img width="736" height="1030" alt="275" src="https://github.com/user-attachments/assets/7dd0e456-0a82-45d0-ba46-4b3d81c53634" />
+
+ <img width="735" height="478" alt="278" src="https://github.com/user-attachments/assets/1537a8e8-633f-40e1-b74b-229d1b13ba42" />
+
 
 
 
