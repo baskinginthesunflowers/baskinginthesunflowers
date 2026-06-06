@@ -2,7 +2,7 @@
 
 
 
-
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=42ADF75F&width=435&lines=I+need+someone+meaningless%2C;To+justify+my+existence.+)](https://git.io/typing-svg)
 
   # Intro ok!
 
