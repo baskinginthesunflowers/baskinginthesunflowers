@@ -1,7 +1,5 @@
-![270](https://github.com/user-attachments/assets/20198d2c-aec0-424f-8e07-0486927e4d26)
+<img width="736" height="736" alt="277" src="https://github.com/user-attachments/assets/be37927d-9435-4ea0-8a6c-b02bfd72a8cb" />
 
-
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=FFFFFF&width=435&lines=%22I+AM+THE+DIRECTOR%2C+I+AM+UNSTABLE.%22" alt="Typing SVG" /></a>
 
 
 
@@ -42,7 +40,8 @@ I haven't experienced this but let's keep it that way.
 
 # 
 
-<img width="735" height="588" alt="247" src="https://github.com/user-attachments/assets/382e3b86-4503-4c04-ba58-2908a1bac742" />
+<img width="736" height="1030" alt="275" src="https://github.com/user-attachments/assets/7dd0e456-0a82-45d0-ba46-4b3d81c53634" />
+
 
 
 
