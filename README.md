@@ -47,10 +47,6 @@ I haven't experienced this but let's keep it that way.
 
 
 
-hi
-
-
-
 
 
 
