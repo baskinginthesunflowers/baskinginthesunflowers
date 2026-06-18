@@ -5,7 +5,7 @@
 
 
 
-Hiya I am sebby or unbrella if you uh actually read ;-;
+Hiya I am kai or unbrella if you uh actually read ;-;
 
 I love to draw and animate however, I rarely draw my 
 
@@ -42,6 +42,7 @@ I haven't experienced this but let's keep it that way.
 
 
 
+<img width="2340" height="1080" alt="624" src="https://github.com/user-attachments/assets/37f0bbb4-7bf1-4632-b9fb-b297c81f8f30" />
 
 
 
