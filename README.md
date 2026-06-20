@@ -1,4 +1,8 @@
-<img width="736" height="414" alt="420" src="https://github.com/user-attachments/assets/733f45ad-b6e9-4cce-a6a7-7cd390b3b18f" />
+<img width="736" height="500" alt="1145" src="https://github.com/user-attachments/assets/b5b2ae78-369f-40fa-b993-98eff167090a" />
+
+
+
+" it was a necessary decision. all for the spawn. "
 
 
   # Intro ok!
@@ -42,7 +46,11 @@ I haven't experienced this but let's keep it that way.
 
 
 
-<img width="2340" height="1080" alt="624" src="https://github.com/user-attachments/assets/37f0bbb4-7bf1-4632-b9fb-b297c81f8f30" />
+<img width="736" height="736" alt="1142" src="https://github.com/user-attachments/assets/5a41b9ab-fd77-40b6-bc62-9e8e7e30c92c" />
+
+" i'm sorry. "
+
+
 
 
 
