@@ -12,13 +12,12 @@
 
 
 
-Hiya I am kai or unbrella if you uh actually read ;-;
-
-I love to draw and animate however, I rarely draw my 
+Hiya I am kai or unbrella if you uh actually read
 
 
-pfps due to me being more used to drawing on paper!! 
+I AM NOT A SPAWNISTS, ONE OF MY HYPERFIXATIONS IS TƯO TIME. 
 
+I LIKE TWO TIME TIME SO PLEASE DONT MISTAKE ME FOR A SPAWNIST.    #    
 
 
 
