@@ -2,10 +2,8 @@
 
 
 
-" it was a necessary decision. all for the spawn. "
+" ᵢ ₐₘ ₛₒᵣᵣy ᵢ wₐₛ ₜₕₑ cₐᵤₛₑ ₒf yₒᵤᵣ dₑₐₜₕ,  ₐzᵤᵣₑ. " °
 
-
-" azure, please forgive me. 
 
 
   # Intro ok!
