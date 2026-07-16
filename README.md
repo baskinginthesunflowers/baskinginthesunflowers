@@ -1,4 +1,4 @@
-wip ok.
+you tell yourself, that this is for the best.
 
 
 
