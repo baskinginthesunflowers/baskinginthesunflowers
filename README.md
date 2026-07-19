@@ -1,4 +1,4 @@
-you tell yourself, that this is for the best.
+you cant pay me to hate subspace or scythe
 
 
 
